@@ -16,7 +16,7 @@ Democratizar a informação à periferia, priorizando contextos de representativ
 
 5. Lutamos por autonomia de decisões e pela dissolução das estruturas de poder, para que a opressão seja parte apenas do nosso passado.
 
-6. O movimento não admite mentiras, traição, inveja, cobiça, calúnia, egoísmo, interesse pessoal, mas sim: a verdade, a fidelidade, a hombridade, solidariedade e o interesse como ao Bem de todos, porque somos um por todos e todos por um.
+6. O movimento não admite mentiras, traição, inveja, cobiça, calúnia, egoísmo, interesse pessoal, mas sim: a verdade, a fidelidade, a hombridade, solidariedade e o interesse como ao bem de todos, porque somos um por todos e todos por um.
 
 7. O elitismo é uma das estruturas que mais nos oprime e é do nosso dever combatê-lo sempre que possível, sem deixar de lado o pragmatismo em discussões.
 
